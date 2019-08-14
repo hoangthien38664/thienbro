@@ -1,0 +1,2 @@
+# thienbro
+Nhận đô la
